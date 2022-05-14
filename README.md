@@ -5,6 +5,6 @@ Thank you so much for stopping by!
 
 I’m interested in automation.
 I’m currently learning how to build apps.
-I’m not looking to collaborate on anything at the momemnt. 
+I’m not looking to collaborate on anything at the moment. 
 
 You can reach me at ey.ngala@gmail.com
